@@ -2,4 +2,4 @@
 My crypto token.
 
 
-Will be available soon :>
+Info about it'll be available soon :>
